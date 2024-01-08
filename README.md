@@ -1,1 +1,1 @@
-# konkolj.dev
+https://www.konkolj.dev/
